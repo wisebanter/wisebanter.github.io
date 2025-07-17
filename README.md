@@ -1,0 +1,2 @@
+# wisebanter.github.io
+Privacies
